@@ -6,7 +6,7 @@ An [American](../index.html) author.
 
 ### A Farewell to Arms
 
-WWI ambulance driver Lieutenant Frederic Henry loves English nurse Catherine Barkley, who becomes pregnant. Henry deserts after Caporetto in Italy and they go to Switzerland, where she dies
+Account of the American Lieutenant Frederic Henry during WWI. Frederic plays pool with Count Greffi and is introduced to the nurse Catherine Barkley, by Rinaldi. Frederic is wounded in the knee in a mortar attack that kills Passini. Henry is moved to a hospital in Milan, Catherine is posted there and ends up impregnated. Catherine’s friend Helen Ferguson chastises Frederic. Miss Van Campen confiscates Frederic’s alcohol, believing it to be the cause of his jaundice. Frederic and Catherine flee to Switzerland by rowboat overnight. Catherine dies in childbirth and Frederic walks home in the rain. 
 
 ### For Whom the Bell Tolls
 
